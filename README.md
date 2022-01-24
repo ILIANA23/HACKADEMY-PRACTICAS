@@ -1,2 +1,7 @@
 # HACKADEMY-PRACTICAS
 PRACTICAS HACKADEMY 2022
+
+
+Mi repositorio
+
+HackWomen 👩🏻‍💻
