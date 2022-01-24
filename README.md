@@ -22,4 +22,4 @@ Me gusta
 - Viajar
 - Conocer y tener experiencia nuevas
 
-Para mi es una oportunidad muy grande estar en el programa de HACKADEMY WOMEN IN TECH
+Para mi es una oportunidad muy grande estar en el programa de SKILLS FOR WOMEN IN TECH
