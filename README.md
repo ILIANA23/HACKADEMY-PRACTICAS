@@ -8,6 +8,13 @@ HackWomen 👩🏻‍💻
 
 Iliana Alarcòn
 
+Estudie Ingenieria en Computaciòn e la UNAM la deje en el 6 Semestre
+Estudie Licenciatura en Computaciòn Administrativa en la UVM titulandome
+Trabaje en BANOBRAS como Ingeniera en TI con el cargo de Experto tècnico, aprendi de torretas financieras y cableado estructurado y telefonia
+Tengo 2 hijos uno en la Preparatoria y otro en la Universidad, tengo 2 perros y una gatita
+
+Me gusta 
+
 - leer
 - nadar
 - Aprender de Tècnologia
